@@ -1,0 +1,1 @@
+Welcome to GUIDE, the premier destination for all your travel needs. Whether you're an adventurous solo traveler, a couple seeking a romantic getaway, or a family planning an unforgettable vacation, GUIDE is here to make your travel dreams a reality.
